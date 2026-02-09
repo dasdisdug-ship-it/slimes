@@ -1,2 +1,2 @@
 # slimes
-just my russian slimes recipes sok??
+just my russian website abt slime recipes ok??
